@@ -1,4 +1,4 @@
-# NightCosmos
+# NocturnalCosmos
 
 A quiet expanse, soft and unfettered🌌.
 This is a space where thoughts can drift freely—no rush, no pressure, just the kind of stillness that lets ideas breathe. Whether they’re half-formed fragments, wandering musings, or quiet curiosities, they find a home here. No need for polish, no fear of misstep; it’s enough to just be in the moment of thinking.
